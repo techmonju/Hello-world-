@@ -1,4 +1,4 @@
 # Hello-world-
 
 Hi there,
-this is rayan; Head of nevula spaceship . Or co-ordination is x x ; 
+this is rayan; Head of nevula spaceship .Now Our co-ordination is x x ; 
